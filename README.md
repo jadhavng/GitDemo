@@ -1,3 +1,1 @@
-Love you Mamta
-
-I hate you Neel
+No one understands you.
